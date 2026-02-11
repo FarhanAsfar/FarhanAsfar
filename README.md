@@ -1,4 +1,4 @@
-## Energy and Persistence conquer all things.
+## Energy and Persistence Conquer All Things.
 
 > Benjamin Franklin
 ---
